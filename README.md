@@ -1,3 +1,3 @@
-- Name: kkw1206kr-geunug159
+- Name: 김근우
 - Interested in Linux.
 - Contact: petty1206kr@hotmail.com
